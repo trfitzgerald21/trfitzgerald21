@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @trfitzgerald21
+- 👀 I’m interested in learning more
